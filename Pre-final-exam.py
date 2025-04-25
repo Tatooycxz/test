@@ -6,5 +6,5 @@
 3.
 4.
 5.
-6.
+6.Denso, Diosdado Jr.
 7.
